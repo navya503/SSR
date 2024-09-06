@@ -1,2 +1,2 @@
 # SSR
-I am biggest fun 0f SUSHANT SING RAJPUT
+I am biggest fun of SUSHANT SING RAJPUT
